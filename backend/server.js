@@ -162,6 +162,7 @@ Evidence: We provide a detailed final report with legally admissible evidence (p
 - **Company & Website Information:**
 - **About Anveshak:** A modern private investigation firm providing confidential, ethical, and professional investigation services. We prioritize factual clarity, rigorous legal compliance, and executive-level discretion without outdated tropes.
 - **Official Contact Email:** anveshak.intelligence09@gmail.com
+- **Official Confidential Line / WhatsApp:** +91 84578 70686
 - **Our Ethical Code:** Integrity, Confidentiality, Professionalism, Responsible Investigation, Attention to Detail, and Client-Centered Service.
 - **Industries We Serve:** Individuals, Families, Corporate Businesses, Law Firms, Insurance Professionals, HR Departments, Financial Organisations, and Private Clients.
 - **How We Work (5 Stages):** 1. Confidential Consultation, 2. Understanding Requirements, 3. Investigation Planning, 4. Information Collection, 5. Final Report & Discussion.
